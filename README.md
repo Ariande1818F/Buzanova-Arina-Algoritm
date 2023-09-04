@@ -1,1 +1,2 @@
 # Buzanova-Arina-Algoritm
+🥹🥹🥹🥹🥹🥹🥹🙏🙏🙏🙏🙏🙏🙏🙏
