@@ -10,3 +10,5 @@ https://docs.google.com/document/d/1HBsaA8JtFLwsPn3NdNgGN14vhn-yoS546U0l8UzIIPI/
 проект по WordPress:https://mogu.so/inviteLink?inviteBoardId=16huO1BBKeSgMmIaLGzO7s&inviteCode=1sNdh7QbbG8nCVos0bI2ov
 Акаунт фрилансаhttps://freelance.habr.com/freelancers/Arianmi1414F
 реплит https://replit.com/@raramaer
+документа по практике 
+https://drive.google.com/drive/folders/1dt_J_WeIEuFiUTAWPldGsYIDxScgaoez
